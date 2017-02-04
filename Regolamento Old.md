@@ -1,7 +1,7 @@
 Regolamento del Gruppo
-🔶🔶Regolamento🔶🔶
+🔶🔶**Regolamento**🔶🔶
 
-Tutti quelli di @itwikipedia devono seguire le normali regole che si trovano in tutti i gruppi civili.
+Tutti quelli di /NOMEGRUPPO/ devono seguire le normali regole che si trovano in tutti i gruppi civili.
 
 No Flood, No Spam e Niente insulti personali.
 Gli Off-topic possono esserci solo in minima quantità.
